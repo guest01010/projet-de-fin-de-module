@@ -20,3 +20,7 @@ notre Présentation powerpoint :
 
 [Beige et Bleu Minimaliste Projet Entreprise Présentation.pptx](https://github.com/user-attachments/files/20374529/Beige.et.Bleu.Minimaliste.Projet.Entreprise.Presentation.pptx)
 
+VOICI LE TEST DE  L UTILISATION DE NOTRE PROJET :
+
+https://drive.google.com/file/d/1-SDWTZ1di885Z-e8-70P06pINl7lM6Fp/view?usp=drive_link
+
